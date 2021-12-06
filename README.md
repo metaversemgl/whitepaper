@@ -1,5 +1,5 @@
 # whitepaper
-please read our White Paper metaverse mgl for more information
+please read our White Paper Metaverse mgl for more information
 White paper will soon be available in other languages</p>
 пожалуйста, прочтите нашу Белую книгу метавселенной MGL для получения дополнительной информации
 Официальный документ скоро будет доступен на других языках.</p>
